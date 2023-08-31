@@ -1,0 +1,9 @@
+-  oii,sou @EvelinAlbachLinda✨
+-corinthiana♥🦅
+-futura veterinária🐶
+-amo animais🐱
+-amo musica sertaneja🎼
+-gosto de dormir💤
+-amo viajar 🗺
+-gosto de futebol e volei🤾‍♀️
+-adoro ver o por-do-sol🌇
